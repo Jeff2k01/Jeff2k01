@@ -2,8 +2,8 @@
 - 👀 I’m interested in gaming 
 - 🌱 I’m currently learning how to find a girlfriend
 - 💞️ I’m looking to collaborate on life 
-- 📫 How to reach me (?) what
-- 😄 Pronouns: He/him .. ?
+- 📫 How to reach me?: Please don't,  I'm shy
+- 😄 Pronouns: He/him .. hopefully
 - ⚡ Fun fact: i'm single and maybe not ready to mingle
 
 <!---
